@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bobthe999
+- 👀 I’m interested in animation
+- 🌱 I’m currently learning Animating games
+- 💞️ I’m looking to collaborate on Animated games to help me learn
+- 📫 How to reach me discord Siple#6025
